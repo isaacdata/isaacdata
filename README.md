@@ -3,7 +3,7 @@
 
 Dados de análises epidemiológicas feitas nos trabalhos pela Rede Análise assim como nos artigos submetidos por mim.
 
-## Sobre 💻:
+## Sobre 💻: Coordenador na Rede Análise (@redeanalise / Twitter e Instagram). Estou no espectro autista! Ah, a pronúncia do sobrenome é CHUÁRTI ZÁUPTI!
 
 
 <a
